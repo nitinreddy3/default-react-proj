@@ -1,0 +1,1 @@
+# Netmagic-static-mnp
